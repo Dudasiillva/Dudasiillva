@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 -  tenhoo 15 anos✨
-- sou saxsonista 🎷
+- sou saxofonista 🎷
 - gosto de trabalhar💸
 - tenho um cachorro quense chama negão🐶
 - tenho um iphone que trabalhei para mim comprar📱
